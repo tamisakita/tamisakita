@@ -1,3 +1,5 @@
+![](https://github.com/user-attachments/assets/d5a73daa-20bb-42e4-8263-b3e36d70875b)
+
 ## Hi there 👋
 
 <h1 align="center">Hi 👋, I'm Tami Sakita</h1>
